@@ -1,2 +1,2 @@
-# Marie-christine-Lassagne-secr-taire-ind-pendante
+# Marie-christine-Lassagne-secretaire-indpendante
 secrétaire indépendante
